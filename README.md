@@ -69,10 +69,10 @@ On the right side of the roadmap, you’ll find helpful cues and technical promp
 
 ## 💬 Final Words
 
-Thanks for checking out this roadmap!
+I truly wish you the best on your learning journey.
 
 Feel free to reach out to me anytime at **suleymansurucu95@gmail.com** — I’d be happy to support your learning journey.
 
-You can complete this roadmap solidly within **6–7 months**, even by studying just once every 2 weeks or monthly.
+I believe that if you dedicate time consistently — even just once every two weeks or once a month — you can confidently complete this entire process in **6–7 months**, completely free.
 
 > **Remember:** The most important step is to start. The second is to know what to do next. 🧭
